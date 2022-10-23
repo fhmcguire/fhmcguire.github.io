@@ -1,1 +1,0 @@
-# fhmcguire.github.io
